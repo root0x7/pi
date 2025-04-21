@@ -1,0 +1,1 @@
+##Pi qanday xisoblanishi xaqida qisqacha 2 ta usul
